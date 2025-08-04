@@ -1,3 +1,3 @@
 # Induction-programme
-Jatin Tiwari (B tech civil engineering)
-uh
+Jatin Tiwari 
+B tech civil engineering 
